@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning c language 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ,contact no-9024740903
+-    I'm basically more active on whatsapp please contact on my whatsapp number 9024740903
 
 <!---
 yashkhandelwal401/yashkhandelwal401 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
